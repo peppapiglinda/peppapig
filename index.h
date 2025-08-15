@@ -1,5 +1,0 @@
-ALURAFLIX
-
-
-6 DESCOBERTAS CIENTIFICAS de 2025 que MUDAM TUDO
-#descobertas cientificas
